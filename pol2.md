@@ -11559,4 +11559,43 @@ A.214-6; Z.4-234/11 B : **אצ״מ**
 
 **במחצית ספטמבר** 1772 **כבשו צבאות אוסטריה את ל׳ לאחר שחיל המוצב הרוסי ששהה מ־**1764 **פינה על פי ההסכם את העיר. בתחילת** 1809 **נכנסו לעיר הלגיונרים הפולנים בפיקודו של הנסיך פוניאטובסקי, ונתקבלו בהת להבות על ידי הפולנים והיהודים. אולם ביוני של אותה שנה נכנסו ללבוב יחידות הצבא האוסטרי, ואחריהם באו הרוסים ונשארו בל׳ עד דצמבר** ,1809 **ואז שוב חזרו האוסטרים לעיר ולא עזבוה יותר בימי מלחמות נאפוליון. לאחר הקונגרס הווינאי** )1815( **נשארה ל׳ כעיר מושב של מושל כל גאליציה בידי האוסטרים.**
 
-**בנובמבר** 1829 **פקד את ל׳ רעש, וב־**1830 **השתוללו בעיר מגיפות טיפוס וכולירה, מהן נפטרו בבתי־החולים היהודיים בלבד** 415 **איש. בספטמבר** 1838 **פרצה שרפה****בית־הכנסת כנוי־עץ ממחצית הראשונה של המאה ה־<sup>18</sup> פצ׳ניז׳ין —**
+**בנובמבר** 1829 **פקד את ל׳ רעש, וב־**1830 **השתוללו בעיר מגיפות טיפוס וכולירה, מהן נפטרו בבתי־החולים היהודיים בלבד** 415 **איש. בספטמבר** 1838 **פרצה שרפה****בית־הכנסת כנוי־עץ ממחצית הראשונה של המאה ה־<sup>18</sup> פצ׳ניז׳ין —**|                                                                                                                      | ፔፓር ል |
+|----------------------------------------------------------------------------------------------------------------------|-------|
+| שפתנו                                                                                                                |       |
+| ספר למנה השפה העברית<br>צל פי כשטה הטבעית.                                                                           |       |
+| תקק שני:                                                                                                             |       |
+| מקר אה לשנת הלמה השנית.                                                                                              |       |
+| אוז [עצמ הטאר הפורג כם סיקאי סיוציו לגשויה בכיזם.                                                                    |       |
+| ריינאר יוויקייון<br>מסקריים ישרינה. פשטישלי<br>תרעית,                                                                |       |
+| serve at and more and and and and an armaly and an and an and an and an and an and an and an and an and an and<br>7. |       |
+| SCATEDU II.<br>in consumptions for a great<br>BING (II) THEILIND                                                     |       |
+| R. H. Z. R. V. S. L.                                                                                                 |       |
+
+**פשמישל — עמוד־השער של ספר־לימוד בשפה העברית, שראה אור בעיר זו ב־**<sup>1918</sup>
+
+| .                                                                                |                                        |                                                                                           | ,                                                                           |
+|----------------------------------------------------------------------------------|----------------------------------------|-------------------------------------------------------------------------------------------|-----------------------------------------------------------------------------|
+| and the three children was and all and                                           |                                        | man both with the same that the same has been as a special                                | $-22^{\circ}$                                                               |
+| ALEXAND CARDIDA DOLUMENTS AND THE                                                | As and there are in which are three as |                                                                                           | two research with a res                                                     |
+| a war and an in the state time and<br>the are a line that the same internal      |                                        | the life with the role after also takes with a take<br>Spring and the subset of the team. | Lo alla la sesse mantie des parts des                                       |
+| h and a server and the sense that the                                            |                                        | and all the statistics we are also and                                                    | and any supporter on any, we are the                                        |
+| with the second service with<br>de dessi the secure was not the form             |                                        | - ఈ కాడ హహకం విద్య ఇవర ఆదర వార్తో ఈ మూ దరిశిత                                             | . And Shine 2.6 were 2000 to a serie<br>- 2 1. 2014 with it wine the second |
+| a all targets and and in in in the head " and the an annex string to be a called |                                        | -in in the truth springs, the nearly high me                                              | the construction with the construction of                                   |
+|                                                                                  |                                        |                                                                                           | AND STREET, THE NAME AND DESCRIPTION OF THE PROPERTY AND DESCRIPTIONS       |
+
+## **פשמישל — השבועון הציוני הראשון, שיצא לאור בעיר זו ב־**<sup>1919</sup>| Pisemko młodzieży      |                                                                           |
+|------------------------|---------------------------------------------------------------------------|
+| RØs ⊥<br>٠.            | omrowej w Przemyślu.<br>Sevenier.Lipiec 1905. -- Simsa, Tamer 5679        |
+|                        | ZESZYT 45<br>$\mathcal{A}_{\mathcal{A}}^{\mathcal{A}}$                    |
+| Ronkar dalency         | TRESC<br>M.<br>1<br>\$                                                    |
+| je atājaku             | ناسلان<br>ב בתשו. ריום<br>2<br>٠                                          |
+| Wratema                | ŧ,<br>"CCC<br>¥.,                                                         |
+| Z., Figara wewnstrange | 7728<br>٠<br>$\mathbf{J}$                                                 |
+| ri naszaj jurán<br>٠   | 11<br>$\mathbf{H}$                                                        |
+| Labance                | 14<br>₿.                                                                  |
+| 2 Maylas               | $\mathcal{L}$<br>$\sim$<br>12                                             |
+| Provision              | ۵.<br>ė.                                                                  |
+|                        |                                                                           |
+|                        | Adres Bedaxsyr i Administry Przemysłyni, Mn.k. ewicza - Francz Garna su p |
+
+**פשמישל — עלון של קן השומר הצעיר בעיר זו מ־<sup>1919</sup>**
